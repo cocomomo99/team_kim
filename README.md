@@ -3,3 +3,4 @@
 
 [TEAMKIM_최종본.pptx](https://github.com/cocomomo99/team_kim/files/12683991/TEAMKIM_.pptx)
 
+[TEAMKIM_최종본.pdf](https://github.com/cocomomo99/team_kim/files/14787188/TEAMKIM_.pdf)
